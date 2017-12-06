@@ -1,2 +1,1 @@
-# spankingcode.pl
-Home page
+# [spankingcode.pl](http://spankingcode.pl/)
